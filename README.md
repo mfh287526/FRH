@@ -1,4 +1,4 @@
-# Fresh Roasted Hosting优惠码和2024年最新云服务器优惠活动整理
+# Fresh Roasted Hosting优惠码和2025年最新云服务器优惠活动整理
 
 ## Fresh Roasted Hosting 介绍
 Fresh Roasted Hosting 提供企业级硬件、从不过载的服务器和真正的24小时技术支持的VPS服务。我们的VPS服务，如新鲜烘焙的咖啡，新鲜、浓郁而有力，远胜于廉价咖啡。
